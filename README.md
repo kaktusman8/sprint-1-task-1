@@ -1,2 +1,0 @@
-Павел
-Discord: MRCop
